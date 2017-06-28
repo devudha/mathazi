@@ -1,1 +1,0 @@
-hi hello gud evening to all.
